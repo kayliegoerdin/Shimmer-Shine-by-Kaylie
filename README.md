@@ -1,1 +1,0 @@
-# Shimmer-Shine-by-Kaylie
